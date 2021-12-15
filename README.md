@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @NikHarnish
+- Currently Studying Computer Science at Lancaster Uni Leipzig
